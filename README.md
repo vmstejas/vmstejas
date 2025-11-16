@@ -1,6 +1,6 @@
 -  Hi, I’m @vmstejas
 -  I’m interested in physics 
-- I’m currently pursuing bsc physics (hons, research) in pondicherry university
+- I’m currently pursuing bsc physics (Hons) in pondicherry university
 
 
 
